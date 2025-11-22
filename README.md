@@ -1,3 +1,3 @@
 # Student-Record-Management-System
 
-dgcuguifgwebfweyfggvgfgwebfbwehigfiweifbwe
+this is a new repo and I love it
